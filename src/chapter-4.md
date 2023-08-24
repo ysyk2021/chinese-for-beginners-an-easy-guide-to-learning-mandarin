@@ -1,5 +1,3 @@
-Chapter 3: Mandarin Grammar Basics
-==================================
 
 In this chapter, we will delve into the fundamental building blocks of Mandarin Chinese grammar. Understanding these basics is essential to building a strong foundation in the language.
 

@@ -1,5 +1,3 @@
-Glossary of Key Terms
-===============================
 
 Mandarin is a complex language with many terms and concepts to learn. This glossary provides definitions for some of the key terms covered in "Chinese for Beginners: An Easy Guide to Learning Mandarin."
 

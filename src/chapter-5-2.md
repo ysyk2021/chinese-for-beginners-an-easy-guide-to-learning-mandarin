@@ -1,5 +1,3 @@
-Analysis of More Complex Sentence Structures
-=====================================================================================
 
 As you progress in your Mandarin language learning journey, you will encounter more complex sentence structures. In this chapter, we will analyze some of these structures and provide strategies for understanding and using them in your own language practice.
 

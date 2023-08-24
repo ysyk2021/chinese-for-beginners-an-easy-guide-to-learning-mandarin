@@ -1,5 +1,3 @@
-Basic Vocabulary and Phrases for Daily Communication in Mandarin
-=========================================================================================================================
 
 In this chapter, we will cover some essential vocabulary and phrases that are commonly used in everyday conversations in Mandarin Chinese. These words and phrases will help you initiate and respond to daily communications in Mandarin Chinese.
 

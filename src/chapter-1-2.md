@@ -1,5 +1,3 @@
-Overview of the Book's Approach to Teaching Mandarin
-==================================================================
 
 Mandarin Chinese is a fascinating and challenging language to learn, with its unique writing system and complex tonal pronunciation. This book, "Chinese for Beginners: An Easy Guide to Learning Mandarin," takes a practical and streamlined approach to teaching the language.
 

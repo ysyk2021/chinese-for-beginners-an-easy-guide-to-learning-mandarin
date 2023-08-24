@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations, you have completed "Chinese for Beginners: An Easy Guide to Learning Mandarin"! We hope this book has provided you with a solid foundation for learning Mandarin and that you will continue to build on your skills.
 

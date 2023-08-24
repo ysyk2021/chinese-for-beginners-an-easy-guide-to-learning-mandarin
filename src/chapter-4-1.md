@@ -1,5 +1,3 @@
-Overview of Basic Sentence Structures in Mandarin
-======================================================================================
 
 In this chapter, we will explore the fundamental sentence structures in Mandarin Chinese. Understanding these basic structures is essential to building a strong foundation in the language.
 

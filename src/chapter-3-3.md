@@ -1,5 +1,3 @@
-Tips for Memorizing Mandarin Vocabulary
-================================================================================================
 
 In this chapter, we will discuss effective ways to memorize Mandarin vocabulary and phrases. These tips will help you build a strong vocabulary foundation and improve your overall Mandarin language skills.
 

@@ -1,5 +1,3 @@
-Understanding Chinese Culture and Customs
-==============================================================================================
 
 Mandarin Chinese is not just a language but also a reflection of Chinese culture and customs. In this chapter, we will explore some key aspects of Chinese culture and customs that are important to understand for effective communication in Mandarin.
 

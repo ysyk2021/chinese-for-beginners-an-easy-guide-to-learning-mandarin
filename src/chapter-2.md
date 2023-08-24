@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Mandarin
-===================================
 
 Mandarin Chinese is the most widely spoken language in the world, with over one billion speakers worldwide. In this chapter, we'll provide a basic introduction to Mandarin and its history, as well as an explanation of the four tones in Mandarin and techniques for proper pronunciation of Mandarin sounds.
 

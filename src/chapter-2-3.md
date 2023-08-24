@@ -1,5 +1,3 @@
-Techniques for Proper Pronunciation of Mandarin Sounds
-===========================================================================================
 
 Proper pronunciation is essential when learning Mandarin. Here are some techniques to help you achieve accuracy and fluency in your pronunciation:
 

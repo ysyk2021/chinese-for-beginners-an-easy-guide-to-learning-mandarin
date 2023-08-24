@@ -1,5 +1,3 @@
-Analysis of Subject-Verb-Object (SVO), Subject-Object-Verb (SOV), and Other Sentence Structures
-===================================================================================================================================
 
 Overview
 --------

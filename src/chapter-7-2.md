@@ -1,5 +1,3 @@
-Recommended Resources for Further Study
-=================================================
 
 Learning Mandarin is a continuous process, and there are many resources available for learners to continue improving their language skills. In this appendix, we will recommend some useful resources for further study.
 

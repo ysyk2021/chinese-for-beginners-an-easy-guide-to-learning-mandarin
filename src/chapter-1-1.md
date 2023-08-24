@@ -1,5 +1,3 @@
-The Importance of Learning Mandarin
-=================================================
 
 Mandarin Chinese is an increasingly important language in today's globalized world. With China's growing economic and cultural influence, there has been a surge in demand for Mandarin speakers across many industries, from business to education and beyond. Here are some reasons why learning Mandarin is essential:
 

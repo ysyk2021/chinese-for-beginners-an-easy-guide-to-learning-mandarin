@@ -1,5 +1,3 @@
-Basic Introduction to Mandarin and Its History
-===================================================================================
 
 Overview
 --------

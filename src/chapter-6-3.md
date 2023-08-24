@@ -1,5 +1,3 @@
-Analysis of Different Cultural Factors Affecting Communication in Mandarin
-===============================================================================================================================
 
 In this chapter, we will analyze different cultural factors that affect communication in Mandarin. Understanding these factors is essential for effective communication in both personal and professional settings.
 

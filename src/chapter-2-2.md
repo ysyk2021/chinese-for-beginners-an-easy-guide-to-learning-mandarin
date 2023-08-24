@@ -1,5 +1,3 @@
-Explanation of the Four Tones in Mandarin
-==============================================================================
 
 In Mandarin, tones play a crucial role in communicating meaning. Mandarin has four primary tones and a neutral tone (which is sometimes considered a fifth tone). The tones are indicated using diacritical marks placed above the vowels in pinyin, the official system for representing Mandarin pronunciation using the Roman alphabet.
 

@@ -1,5 +1,3 @@
-Strategies for Expanding Vocabulary and Using Idiomatic Expressions
-============================================================================================================
 
 Now that you have a solid foundation in basic Mandarin vocabulary and grammar, it's time to start building fluency by expanding your vocabulary and incorporating idiomatic expressions into your language use. In this chapter, we will cover some strategies for building fluency in Mandarin.
 

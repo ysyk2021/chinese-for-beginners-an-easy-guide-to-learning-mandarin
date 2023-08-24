@@ -1,5 +1,3 @@
-Chapter 2: Essential Vocabulary and Phrases in Mandarin
-=======================================================
 
 In this chapter, we will cover essential vocabulary and phrases in Mandarin Chinese that are commonly used in daily communication. We will also provide common questions and responses for simple conversations in Mandarin and tips for memorizing Mandarin vocabulary.
 

@@ -1,5 +1,3 @@
-Common Questions and Responses for Simple Conversations in Mandarin
-============================================================================================================================
 
 In this chapter, we will cover some essential words and phrases that are commonly used in everyday conversations in Mandarin Chinese. These words and phrases will help you initiate and respond to simple conversations in Mandarin Chinese.
 

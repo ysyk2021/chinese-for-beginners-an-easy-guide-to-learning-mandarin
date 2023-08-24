@@ -1,5 +1,3 @@
-Explanation of Basic Grammatical Particles in Mandarin
-==========================================================================================
 
 In this chapter, we will explore some of the basic grammatical particles in Mandarin Chinese. These particles are essential components of Mandarin grammar and play a crucial role in conveying meaning and nuance in sentences.
 

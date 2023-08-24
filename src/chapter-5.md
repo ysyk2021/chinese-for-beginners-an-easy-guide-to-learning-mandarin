@@ -1,5 +1,3 @@
-Chapter 4: Building Fluency in Mandarin
-=======================================
 
 Congratulations on getting this far! In this chapter, we will explore some techniques for improving your listening, speaking, reading, and writing skills in Mandarin Chinese. We will also look at more complex sentence structures and strategies for expanding your vocabulary and using idiomatic expressions.
 

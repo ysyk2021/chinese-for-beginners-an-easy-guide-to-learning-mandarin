@@ -1,4 +1,3 @@
-# Introduction
 
 Welcome to "Chinese for Beginners: An Easy Guide to Learning Mandarin." Mandarin Chinese, one of the most widely spoken languages worldwide, is the official language of China. The language's importance in global business, education, and diplomacy continues to increase, making it essential to learn Mandarin.
 
