@@ -15,7 +15,7 @@ Techniques for Improving Listening, Speaking, Reading, and Writing Skills in Man
 Analysis of More Complex Sentence Structures
 --------------------------------------------
 
-In Chapter 3, we looked at basic Mandarin Chinese sentence structures. In this section, we will explore more complex sentence structures, including:
+In this section, we will explore more complex sentence structures, including:
 
 * Compound Sentences: A compound sentence is made up of two or more independent clauses joined together by a conjunction. Examples include "我喜欢看电影，但是我不喜欢看电视" (Wǒ xǐhuān kàn diànyǐng, dànshì wǒ bù xǐhuān kàn diànshì) - I like watching movies, but I don't like watching TV.
 

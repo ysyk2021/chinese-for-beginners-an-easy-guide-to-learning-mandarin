@@ -10,3 +10,7 @@ We believe that anyone can learn Mandarin with proper guidance and consistent pr
 We hope that this book will be a valuable resource for you as you embark on your Mandarin learning journey. Let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

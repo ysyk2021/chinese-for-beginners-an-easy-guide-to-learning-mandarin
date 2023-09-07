@@ -49,4 +49,4 @@ Memorizing vocabulary is a crucial step in learning Mandarin Chinese. Here are s
 * Practice speaking and listening to reinforce new words in your memory.
 * Use mnemonics and memory techniques to associate words with visual images or memorable sentences.
 
-By following these tips and consistently practicing new vocabulary, you'll be able to build a strong foundation for learning Mandarin Chinese. In the next chapter, we will cover fundamental sentence structures in Mandarin Chinese.
+By following these tips and consistently practicing new vocabulary, you'll be able to build a strong foundation for learning Mandarin Chinese.

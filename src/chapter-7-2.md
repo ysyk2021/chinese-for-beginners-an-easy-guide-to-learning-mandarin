@@ -1,40 +1,38 @@
+Recommended Resources for Further Study
+=======================================
 
-Learning Mandarin is a continuous process, and there are many resources available for learners to continue improving their language skills. In this appendix, we will recommend some useful resources for further study.
+Congratulations on completing the beginner's course in Mandarin Chinese! If you're interested in furthering your knowledge of the language, here are some resources you can use to continue your studies:
 
-Online Courses and Apps
------------------------
+Online Resources
+----------------
 
-There is a wealth of online courses and apps available for learning Mandarin. Some popular resources include:
+1. **Duolingo** - A popular language learning app, Duolingo offers a Mandarin Chinese course for beginners that's easy and fun to use.
 
-* Duolingo: A free app that provides basic Mandarin language lessons through gamification.
-* Rosetta Stone: A paid language learning program with interactive lessons and speech recognition technology.
-* Coursera: Offers various online courses on Chinese language and culture from top universities worldwide.
+2. **Memrise** - This app offers comprehensive courses in Mandarin Chinese with a focus on vocabulary and conversational skills.
 
-Textbooks and Workbooks
------------------------
+3. **HelloChinese** - This is another language learning app that's tailored specifically for Mandarin Chinese learners. It includes features like speech recognition and games to help you practice your skills.
 
-Textbooks and workbooks are essential resources for learning and practicing Mandarin. Some recommended resources include:
+4. **Mandarin Corner** - This YouTube channel offers free video lessons in Mandarin Chinese, covering topics like grammar, pronunciation, and vocabulary.
 
-* "Integrated Chinese": A widely used series of textbooks and workbooks for learning Mandarin, used in many universities across the United States.
-* "New Practical Chinese Reader": A well-regarded series of textbooks and workbooks for beginners to intermediate-level Mandarin learners.
+5. **ChinesePod** - This podcast provides audio lessons in Mandarin Chinese, with transcripts and interactive quizzes available on their website. They offer different levels of difficulty, allowing you to find the right content for your skill level.
 
-Language Exchanges and Immersion Programs
------------------------------------------
+Textbooks
+---------
 
-Participating in language exchanges or immersion programs can greatly enhance Mandarin language skills. Some recommended resources include:
+1. **Integrated Chinese** - This is a popular textbook series used in many universities to teach Mandarin Chinese. It includes both traditional and simplified characters, as well as audio and video resources.
 
-* iTalki: A website that connects language learners with native Mandarin-speaking tutors for one-on-one language exchanges.
-* Mandarin House: Offers language immersion programs in Beijing, Shanghai, and other locations throughout China.
+2. **New Practical Chinese Reader** - Another widely used textbook series, New Practical Chinese Reader provides comprehensive lessons in Mandarin Chinese with a focus on real-life situations and conversations.
 
-Chinese Media
--------------
+3. **HSK Standard Course** - This textbook series is designed to prepare students for the HSK (Hanyu Shuiping Kaoshi) exam, which measures proficiency in Mandarin Chinese. It includes exercises and sample tests to help you assess your progress.
 
-Exposure to Chinese media, such as TV shows, movies, and music, can greatly improve Mandarin language skills and provide insights into Chinese culture. Some recommended resources include:
+Language Exchange Programs
+--------------------------
 
-* Pinyin News: A website with news articles written in simplified Chinese and pinyin, geared towards beginners and intermediate-level Mandarin learners.
-* FluentU: Provides video content with interactive subtitles, allowing learners to practice listening and reading comprehension skills while learning new vocabulary.
+1. **Tandem** - This app connects language learners around the world, allowing you to practice your Mandarin Chinese skills with native speakers and receive feedback on your pronunciation and usage.
+
+2. **italki** - This website offers one-on-one language exchange sessions with Mandarin Chinese tutors, allowing you to receive personalized instruction and practice your skills in a supportive environment.
 
 Conclusion
 ----------
 
-These are just a few recommended resources for further study in Mandarin. As learners progress, it is essential to continuously seek out new opportunities and resources to improve language skills and deepen understanding of Chinese culture and customs.
+These resources are just a few examples of the many options available for furthering your studies in Mandarin Chinese. Find the ones that work best for you and continue to practice and improve your skills!

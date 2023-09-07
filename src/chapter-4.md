@@ -16,4 +16,4 @@ Explanation of Basic Grammatical Particles in Mandarin
 
 Mandarin Chinese uses grammatical particles to express relationships between words in a sentence. Some of the basic particles include 的(de)、了(le)、吗(ma)、不(bù). Understanding how to use these particles correctly is essential to expressing yourself fluently in Mandarin Chinese.
 
-In conclusion, understanding basic grammar structures and particles is essential to developing a strong foundation in Mandarin Chinese. In the next chapter, we will dive deeper into the Chinese language by exploring key vocabulary related to family, friends, and daily life.
+In conclusion, understanding basic grammar structures and particles is essential to developing a strong foundation in Mandarin Chinese.
