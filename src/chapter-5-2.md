@@ -1,5 +1,4 @@
-Chapter: Analysis of More Complex Sentence Structures
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore more complex sentence structures commonly used in Mandarin Chinese. Understanding these structures will enhance your ability to construct sentences and express yourself with greater clarity and precision.
 

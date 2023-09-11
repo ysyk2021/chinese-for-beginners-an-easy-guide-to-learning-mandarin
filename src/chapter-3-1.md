@@ -1,5 +1,4 @@
-Chapter 1: Basic Vocabulary and Phrases for Daily Communication in Mandarin
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will introduce some essential vocabulary and phrases that will help you communicate in Mandarin Chinese on a day-to-day basis. Familiarize yourself with these words and expressions to enhance your language skills and interact confidently in various situations.
 

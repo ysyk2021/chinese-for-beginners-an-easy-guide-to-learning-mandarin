@@ -1,5 +1,4 @@
-Chapter: Analysis of Subject-Verb-Object (SVO), Subject-Object-Verb (SOV), and Other Sentence Structures
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore different sentence structures commonly used in Mandarin Chinese. Understanding these structures is essential for constructing sentences and communicating effectively. We will analyze the Subject-Verb-Object (SVO) and Subject-Object-Verb (SOV) sentence structures, as well as other variations found in Mandarin.
 

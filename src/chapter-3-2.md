@@ -1,5 +1,4 @@
-Common Questions and Responses for Simple Conversations in Mandarin
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In everyday conversations, it's important to be able to ask and respond to common questions in Mandarin Chinese. Here are some frequently used questions and their corresponding responses to help you engage in simple conversations:
 

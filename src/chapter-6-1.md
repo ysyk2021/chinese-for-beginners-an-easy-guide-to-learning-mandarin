@@ -1,5 +1,4 @@
-Chapter: Understanding Chinese Culture and Customs
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the rich cultural heritage of China and gain insight into the customs and traditions that shape daily life. Understanding Chinese culture is vital for learners of Mandarin as it provides valuable context for effective communication and fosters cultural sensitivity. We will delve into key aspects of Chinese culture, including history, festivals, social customs, and etiquette.
 

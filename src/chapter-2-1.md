@@ -1,5 +1,4 @@
-Chapter: Basic Introduction to Mandarin and Its History
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide a basic introduction to Mandarin Chinese and its historical background. Understanding the fundamentals of Mandarin and its development will enhance your overall comprehension and appreciation of the language.
 

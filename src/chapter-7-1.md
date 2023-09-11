@@ -1,5 +1,4 @@
-Chapter: Glossary of Key Terms
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 This chapter serves as a comprehensive glossary of key terms used in "Chinese for Beginners: An Easy Guide to Learning Mandarin." These terms are essential for understanding and navigating the world of Mandarin Chinese.
 

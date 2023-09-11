@@ -1,5 +1,4 @@
-Chapter: Analysis of Different Cultural Factors Affecting Communication in Mandarin
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will examine various cultural factors that influence communication in Mandarin Chinese. Understanding these factors is crucial for effective cross-cultural communication and building strong relationships with Mandarin speakers. We will explore how cultural values, etiquette, nonverbal communication, and indirectness impact communication in Mandarin.
 

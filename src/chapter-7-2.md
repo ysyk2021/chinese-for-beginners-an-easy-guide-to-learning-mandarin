@@ -1,5 +1,4 @@
-Recommended Resources for Further Study
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Congratulations on completing the beginner's course in Mandarin Chinese! If you're interested in furthering your knowledge of the language, here are some resources you can use to continue your studies:
 

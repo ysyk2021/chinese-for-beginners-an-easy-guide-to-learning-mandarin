@@ -1,5 +1,4 @@
-Tips for Memorizing Mandarin Vocabulary
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning vocabulary is a crucial part of mastering Mandarin Chinese. To effectively memorize Mandarin vocabulary, try implementing the following tips and techniques:
 

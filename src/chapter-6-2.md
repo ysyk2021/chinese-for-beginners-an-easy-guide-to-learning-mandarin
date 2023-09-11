@@ -1,5 +1,4 @@
-Chapter: Techniques for Incorporating Cultural Context and Nuances into Language Learning
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning Mandarin Chinese is not only about acquiring language skills but also about understanding the rich cultural context and nuances that shape the language. This chapter explores effective techniques for incorporating cultural context and nuances into your Mandarin language learning journey. By embracing the cultural aspects of the language, you will gain a deeper understanding and appreciation for Mandarin Chinese.
 

@@ -1,5 +1,4 @@
-Techniques for Improving Listening, Speaking, Reading, and Writing Skills in Mandarin
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Congratulations on your journey to learn Mandarin Chinese! To further enhance your language skills, it's important to focus on improving your listening, speaking, reading, and writing abilities. Here are some effective techniques to help you develop proficiency in each of these areas:
 

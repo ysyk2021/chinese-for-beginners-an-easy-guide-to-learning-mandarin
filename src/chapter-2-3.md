@@ -1,5 +1,4 @@
-Chapter: Techniques for Proper Pronunciation of Mandarin Sounds
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques that will help beginners achieve proper pronunciation of Mandarin sounds. Mastering the correct pronunciation is crucial for effective communication in Mandarin Chinese.
 

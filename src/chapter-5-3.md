@@ -1,5 +1,4 @@
-Chapter: Strategies for Expanding Vocabulary and Using Idiomatic Expressions
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss effective strategies for expanding your Mandarin vocabulary and incorporating idiomatic expressions into your speech. Building a strong vocabulary and understanding idioms will enhance your fluency and enable you to express yourself more naturally in Mandarin Chinese.
 

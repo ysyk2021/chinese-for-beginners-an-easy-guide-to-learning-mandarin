@@ -1,5 +1,4 @@
-Chapter: Explanation of Basic Grammatical Particles in Mandarin
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential grammatical particles used in Mandarin Chinese. Understanding these particles is crucial for constructing sentences and conveying meaning accurately. We will explore the usage and functions of some common particles, including sentence structure, negation, questions, and more.
 
